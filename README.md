@@ -1,0 +1,1 @@
+https://youtu.be/bAJlYgeovlg - This Is The Perfect Project For Your React/TypeScript Resume
